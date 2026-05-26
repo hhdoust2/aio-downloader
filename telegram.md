@@ -7,6 +7,364 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 03:24
+---
+
+## VahidOOnLine — post 242365
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242365_1779839643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سازمان «نت‌بلاکس» که وضعیت خدمات اینترنت در جهان را رصد می‌کند، اعلام کرد که پس از ۸۸ روز انزوای کامل شبکه‌های ایران، سطح اتصال به شبکه بین‌المللی به ۸۶ درصد رسیده است. بر اساس گزارش این سازمان، این انسداد ۲ هزار و ۹۳ ساعته، طولانی‌ترین قطع سراسری اینترنت در تاریخ مدرن به شمار می‌رود.
+نت‌بلاکس با اشاره به اینکه هنوز پایدار ماندن این اتصال مشخص نیست، تاکید کرد که سیستم فیلترینگ شدید (فیلترنت) همچنان برقرار است، دسترسی به پیام‌رسان واتس‌اپ محدود شده و کاربران برای استفاده از آن به ابزارهای دور زدن فیلترینگ نیاز دارند؛ همچنین برخی از کاربران هنوز به طور کامل به اینترنت دسترسی ندارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242364
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242364_1779839644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار ویدیویی در تلگرام، از کشف و انهدام حدود ۱۱ کیلومتر تونل حماس در منطقه بیت‌حانون، در شرق «خط زرد» در شمال نوار غزه، خبر داد.
+در اطلاعیه ارتش اسرائیل آمده است این منطقه سال‌ها به‌عنوان یکی از پایگاه‌های اصلی تروریستی حماس عمل می‌کرد و یکی از اصلی‌ترین و پیچیده‌ترین مناطق نبرد بود که نیروهای اسرائیل در طول جنگ در آن عملیات انجام دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242363
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صداوسیمای جمهوری اسلامی در برنامه‌ای با حضور کمیل خجسته، برادرزاده منصوره خجسته باقرزاده، همسر علی خامنه‌ای، درباره وضعیت اعضای خانواده رهبر کشته‌شده جمهوری اسلامی در زمان حمله گفتگو کرد.
+در این برنامه، کمیل خجسته با اشاره به کشته شدن برخی اعضای خانواده گفت دختر بزرگ خامنه‌ای، نوه او و شماری دیگر از اعضای خانواده کشته شده‌اند. او همچنین توضیح داد اعضای خانواده هنگام حمله در کنار علی خامنه‌ای حضور نداشتند و هرکدام در بخش‌های مختلف همان ناحیه مستقر بودند.
+مجری برنامه نیز در ادامه پرسید آیا همه در یک محل حضور داشتند که خجسته پاسخ داد حملات به چند نقطه مختلف انجام شده است.
+علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، در جریان حملات آمریکا و اسرائیل در تاریخ ۹ اسفند ۱۴۰۴ کشته شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا موشلی رو جمعه در تهران و شنبه در مشهد تشیع میکنند
+@withyashar
+</div>
+
+## WithYashar — post 12623
+
+
+
+
+## WithYashar — post 12622
+
+
+
+
+## IranIntlTV — post 339177
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339177_1779839646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید تایید کرد دونالد ترامپ، رییس‌جمهوری آمریکا، قرار است چهارشنبه نشستی ویژه با کابینه خود برگزار کند. این خبر را یک مقام کاخ سفید به خبرگزاری فرانسه اعلام کرد.
+
+نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، درباره آخرین تحولات از مذاکرات آمریکا و جمهوری اسلامی می‌گوید
+@iranintltv
+</div>
+
+## IranIntlTV — post 339176
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339176_1779839647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار ویدیویی در تلگرام، از کشف و انهدام حدود ۱۱ کیلومتر تونل حماس در منطقه بیت‌حانون، در شرق «خط زرد» در شمال نوار غزه، خبر داد.
+در اطلاعیه ارتش اسرائیل آمده است این منطقه سال‌ها به‌عنوان یکی از پایگاه‌های اصلی تروریستی حماس عمل می‌کرد و یکی از اصلی‌ترین و پیچیده‌ترین مناطق نبرد بود که نیروهای اسرائیل در طول جنگ در آن عملیات انجام دادند.
+</div>
+
+## IranIntlTV — post 339175
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339175_1779839649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شادی از مشهد: مردم بدانند ما وسط تاریخیم و انقلاب فست‌فود نیست که بزنیم برود؛ زمان می‌برد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339174
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339174_1779839651.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا از شیراز: بدون سازمان‌دهی و با کت‌وشلوار نمی‌شود انقلاب کرد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339173
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339173_1779839652.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام از تهران: هزینهٔ درمان آن‌قدر بالا رفته که بعضی به عمل اورژانسی نمی‌رسند و می‌میرند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## FarsiVOA — post 218757
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218757_1779839654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سیاست‌های مهاجرتی سخت‌گیرانه‌تر در کانون توجه فرانسه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا، سنتکام، روز سه‌شنبه تصویر سوخت‌گیری هوایی یک فروند جنگنده رادارگریز اف-۲۲ رپتور نیروی هوایی ایالات متحده هنگام پرواز بر فراز خاورمیانه را منتشر کرد. نیروهای سنتکام در عملیات «خشم حماسی» علیه جمهوری اسلامی شرکت داشتند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218751
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218751_1779839655.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تورم در اروپا سرسخت‌تر از پایان تنش‌ها؛ افزایش نرخ بهره حتی در صورت توافق با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15092
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15092_1779839656.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282136
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊کیلین دولین، بخش راستی‌آزمایی بی‌بی‌سی و فیبی کین، بی‌بی‌سی
+
+«احساس کردم تمام کشتی لرزید. فکر کردم شاید موتور دچار نقص فنی شده باشد. اما به محض اینکه از اتاقم بیرون آمدم، انفجار دیگری رخ داد.»
+
+سونیل پونیا، ۲۶ ساله، نخستین ماموریت دریایی خود را می‌گذراند که در ساعات اولیه اول مارس، موشکی به نفتکش اسکای‌لایت اصابت کرد.
+
+این کشتی که تحت تحریم آمریکا بود، از دوبی حرکت کرده بود و به تنگه هرمز، یکی از پرترددترین مسیرهای کشتیرانی جهان، نزدیک می‌شد. اسکای‌لایت نخستین کشتی تجاری بود که پس از آغاز جنگ آمریکا و اسرائیل با ایران در منطقه هدف قرار گرفت.
+
+هنگام حمله، سونیل در کابین خود در طبقه سوم خواب بود. وقتی بیدار شد، کشتی را در هرج‌ومرج دید. موشک به موتورخانه اصابت کرده بود و آتشی به راه انداخته بود که به‌سرعت در کشتی گسترش یافت.
+
+او می‌گوید: «همه‌جا کاملا تاریک شده بود و دود همه‌جا را گرفته بود. همه برای نفس کشیدن مشکل داشتند.»
+
+آلبوم را ورق بزنید و برای خواندن مطلب کامل به لینک زیر مراجعه کنید.
+
+https://bbc.in/4vangxd
+📸GettyImages/Reuters/ Sunil Puniya/ Family of Dalip Rathore/ Rex Pereira/ Sunil Pereira
+</div>
+
+## BBCPersian — post 282135
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282135_1779839656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علی خطیر، عضو هیئت رئیسه فدراسیون فوتبال ایران، از همراهی با کاروان تیم ملی فوتبال مردان این کشور به جام جهانی انصراف داده است. او سومین عضو از گروه بزرگ همراهان تیم ملی ایران است که به زودی عازم کمپ خود در مکزیک و آماده سه مسابقه مقدماتی در کرانه غربی آمریکا خواهد شد.
+
+خبرگزاری دولت ایران روز سه‌شنبه نوشت آقای خطیر با ارسال نامه‌ای به مهدی تاج، رئیس فدراسیون فوتبال اعلام کرده «به دلیل مشغله کاری و همچنین عدم نیاز به حضورش در این تورنمنت، در سفر همراه کاروان فدراسیون شرکت نخواهد کرد.»
+
+ایرنا نوشته پیش از این هم حیدر بهاروند و محمدرحمان سالاری دیگر اعضای هیات رئیسه» از همراهی کاروان ایران انصراف داده بودند.
+
+انصراف آقای خطیر و دیگر اعضای همراه تیم ایران در حالی است که هنوز گزارشی از نتیجه درخواست روادیدهای اعضای کرد.
+
+روز سه‌شنبه همچنین گزارش شد علیرضا جهانبخش، کاپیتان تیم ملی و همچنین، دنیس درگاهی، مهاجم جدید ایرانی‌تبار تیم ایران به اردوی ترکیه پیوسته‌اند تا جمع بازیکنان این اردو تکمیل شود.
+
+📷SNN
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 390288
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390288_1779839657.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390287
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390287_1779839658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A5
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390286
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390286_1779839658.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390285
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390285_1779839659.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمال برگشت پهلوی هست اما عاقات دیگه برنمیگرده 🕳💣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390284
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390284_1779839659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به خونه خوش اومدین برخط‌های شیطون❤️
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگفتن ۴۰ میلیون جان‌فدا دارن.
+ولی از وقتی نت وصل شده هرکی آنلاین شده اول مینویسه کیرم تو خامنه‌ای.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها سودی که ترامپ داشت این بود که باعث شد یه مدت قیافه‌ی فرید کنزو رو نبینیم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینکه شب عید قربان نت وصل کردن حس گوسفندی رو دارم که قبل ذبح اب بهش میدن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390280
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390280_1779839660.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی: رجز خونی مجتبی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بگو نتا رو قطع کنن جنبه نداریم تو ۲ساعت ۵بار جق زدم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 02:29
 ---
 
